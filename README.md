@@ -1,1 +1,1 @@
-# bruh
+Telif hakları vardır.
